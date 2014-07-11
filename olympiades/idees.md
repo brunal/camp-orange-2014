@@ -9,6 +9,7 @@ Questions
 * mixte ou pas ?
 
 IMAGINAIRE for dreaming
+
 Du coups, les Olympiades étant dans l'après midi, on pourrait faire intervenir l'imaginaire à la fin du déjeuner ( le sage du village arrive en courant pour annoncer que l'heure de l affrontement contre les cow-boys est proche et qu il est temps que les jeunes papoose devient de vaillants guerriers ! Que pour faire poids les clans doivent tisser une alliance entre eux en cette heure grave ! Sur ce les chefs des différents clans répliquent qu'ils sont d 'accord avec le sage et pour montrer leurs engagement décident pour la premier fois depuis des lunes de former leurs guerriers par équipe composée de popoose de tribu mélangée pour donner l'exemple aux anciens rancuniers du tipi . Différent "frères et sœur de guerre" (=équipier) vont se regrouper par "fratrie" (=équipe) de quatre et sceller leurs alliance dans le "stand" maquillage où ils s'entrepeinturlureront de marques propre à chaqune des "fratrie"; Ils devront aussi trouver un cri de regroupement . L'équipe la plus soudé aura plus de chance de remporter la récompense à la fin .. (On prévoit quoi comme récompense ? )
 
 FORMER LES EQUIPES
@@ -22,6 +23,8 @@ MATÉRIEL
 
 maquillage -plume de couleurs -fil de coton
 javelots ?
+
+
 LES STANDS
 
 sportif :
@@ -53,6 +56,7 @@ le jeux du "volley avec une plume "
 il y a deux équipe face un face avc une corde à hauteur de filet de voley qui les sépart . Une plume est lancé. Rien quavec leurs souffle, les mains ne doivent jamais toucher la plume, ils doivent faire passer la plume de l autre côté du filet, comme le ballon au volley . materiau : corde, une plume legère type doudoune .
 
 adresse:
+
 -maquillage
 -lancé de javelot ?
 -un stand de rythme (avec deux équipes) tam-tam sur casserole , tandis que l autre équipe improvise une dense guerrière : ( ^^ )
