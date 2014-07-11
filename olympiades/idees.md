@@ -29,6 +29,11 @@ _ inter équipe :
 
 _ contre une équipe :
 
+La course déguisée
+Le principe : Il s’agit d’une « course de relais » dans laquelle le relais n’est pas un bâton mais tout un déguisement. Il faut tout d’abord diviser les membres de l’équipe en deux, de part et d’autre du terrain à traverser (une vingtaine de mètres environ). Quand la course commence, l’équipe habille le premier participant avec le déguisement. Celui-ci court alors jusqu’au point du relais, il se déshabille et passe sont déguisement au participant suivant et ainsi de suite. 
+Le matériel : Un ou plusieurs déguisements (si les équipes s’affrontent en même temps). Ce jeu est d’autant plus drôle que le déguisement est farfelu et mal pratique (palmes, tutu, perruque, collier…). 
+La mesure de la performance : Chronomètre ou affrontement de deux équipes en même temps. (Cela ne fonctionne que si les deux équipes ont le même nombre de personnes ; sinon, pensez alors à diviser le temps par le nombre de concurrents).
+
 adresse:
 -maquillage
 -lancé de javelot ?
