@@ -18,6 +18,11 @@ sportif
 
   La mesure de la performance : Le parcours est chronométré.
 
+- Tir à la corde (1 équipe)
+
+- Lutte gréco-romaine (2 équipes ?)
+
+  Problème : on s'affronte à tour de rôle 1v1 tous ?
 
 - La course déguisée (2 équipes)
 
