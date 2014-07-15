@@ -20,6 +20,8 @@ sportif
 
 - Tir à la corde (1 équipe)
 
+- Mémory d'objets (1 équipe) (plus rapide)
+
 - Lutte gréco-romaine (2 équipes ?)
 
   Problème : on s'affronte à tour de rôle 1v1 tous ?
@@ -48,6 +50,8 @@ sportif
   Il y a deux équipe face un face avc une corde à hauteur de filet de voley qui les sépart . Une plume est lancé. Rien quavec leurs souffle, les mains ne doivent jamais toucher la plume, ils doivent faire passer la plume de l autre côté du filet, comme le ballon au volley .
 
   matériel : corde, une plume legère type doudoune .
+
+- bérêt (2 équipes)
 
 adresse
 -------
